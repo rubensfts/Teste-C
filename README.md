@@ -1,2 +1,2 @@
-Alguns cogidos aleatorios queeu faço, para treinar.
+Alguns cogidos aleatorios que eu faço, para treinar.
 NÃO LEVE A SERIO!
